@@ -1,2 +1,4 @@
 # Project_1_Recipe_Markdown
- This is my favorite recipe for coffe bar
+ This is my favorite recipe for coffee bar
+ 
+ # About
