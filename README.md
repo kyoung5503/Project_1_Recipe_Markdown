@@ -75,5 +75,5 @@ You could also put a dash of hot sauce for a little spice
 
 
 
-[How to make eggs benedict](https://www.simplyrecipes.com/recipes/eggs_benedict/)
+
 
