@@ -5,7 +5,7 @@ On a nice weekend morning, sometimes i feel like be more sophisticated than norm
 **Cook Time:** 20 Minutes
 **Total Time:** 25 Minutes
 **Servings:** 4, one-egg one-muffin servings (2-4 servings)
-**Total Cost:**
+
 
 # Ingredients
 
@@ -58,6 +58,18 @@ While the bacon is cooking, bring a large saucepan two-thirds-filled with water 
 
  Transfer it to a container you can use for pouring and set it on a warm—but not hot—place on or near the stovetop.
 
+## Preparing The English Muffins
+As soon as all the eggs are in the poaching water, begin toasting your English muffins. If you can’t get all the muffins toasted by the time the eggs are ready, gently remove the eggs from the poaching water and set in a bowl.
+
+## Final Assembly
+To assemble, butter one side of an English muffin. Top with two slices of bacon or 1 slice of Canadian bacon. You can trim the bacon to fit the muffin if you’d like.
+
+Put a poached egg on top of the bacon, then pour some hollandaise over. Sprinkle some parsley over it all and serve at once.
+
+
+## Notes
+You could sub out the english muffins for whole wheat is you please to;
+You could also put a dash of hot sauce for a little spice 
 
 
 
